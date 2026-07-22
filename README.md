@@ -1,1 +1,1 @@
-# Art-culos-sobre-Ciencia-y-Tecnolog-a-de-los-Alimentos-CTA-
+# Articulos-sobre-Ciencia-y-Tecnologia-de-los-Alimentos-CTA-
